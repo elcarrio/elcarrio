@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @elcarrio
+- 👀 I’m interested in transpersonal psychology
+- 🌱 I’m currently learning in Alef Trust
+- I am living in Paris- France
+- 📫 How to reach me: info@elisabeth-carrio.com
